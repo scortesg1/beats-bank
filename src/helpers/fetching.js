@@ -1,6 +1,6 @@
 export function obtenerPortada({ name, author}) {
-  const clientId = "4f59f52ea2104e1eb954f86bca7c90e1";
-  const clientSecret = "fb49e75410494e82ac0d8e1906ce9a9e";
+  const clientId = import.meta.env.VITE_CLIENT_ID;
+  const clientSecret = import.meta.env.VITE_CLIENT_SECRET;
 
   const authUrl = "https://accounts.spotify.com/api/token";
   const authHeaders = {
