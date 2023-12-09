@@ -1,7 +1,7 @@
 # Beats Bank
 
 Beats Bank is a web application built with ReactJS & TailwindCSS that allows users to discover songs featured on various radio stations within the Grand Theft Auto V (GTA V) game. Users can search for songs by name, filter by genre, or explore the entire collection.
-
+You can access to Beats Bank with the following link: https://beatsbank.netlify.app/
 ## Features
 
 - **Search by Name**: Easily find specific songs by searching for their name.
