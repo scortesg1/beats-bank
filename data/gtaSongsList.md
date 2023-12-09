@@ -1,0 +1,1025 @@
+# Lista canciones de GTA V
+
+# The blue Ark
+
+- Chronixx - Odd Ras (2013).
+- Dennis Brown - Money In My Pocket (1979).
+- Gregory Isaacs - Night Nurse (1982).
+- Half Pint - Crazy Girl (1986).
+- Joe Gibbs & The Professionals - Chapter Three (1978).
+- Junior Delgado - Sons Of Slaves (1977).
+- Konshens - Gun Shot A Fire (2012).
+- Lee "Scratch" Perry - I Am A Madman (1986).
+- Lee "Scratch" Perry & The Full Experience - Disco Devil (1977).
+- The Upsetters - Grumblin' Dub (1977).
+- Tommy Lee Sparta - Pyscho (2012).
+- Vybz Kartel & Popcaan - We Never Fear Dem (2011).
+- Yellowman - Nobody Move, Nobody Get Hurt (1984).
+- Protoje - Kingston Be Wise (2013).
+- Demarco - Loyals (Royals Remix) (2014). Platform
+- Busy Signal Ft. Damian "Jr. Gong" Marley - Kingston Town (Remix) (2012). Platform
+- Danny Hensworth - Mr. Money Man (1978). Platform
+- I-Octane - Topic Of The Day (2011). Platform
+- Vybz Kartel - Addi Truth (2014). Platform
+- Lee "Scratch" Perry - Money Come And Money Go (2010). Platform
+- Lee "Scratch" Perry - Roast Fish And Cornbread (1978). Platform
+
+# WorldWide FM
+
+- Cashmere Cat - Mirror Maru (2012).
+- The Hics - Cold Air (2013).
+- Inc. - The Place (2012).
+- Trickski - Beginnings (2011).
+- Mala - Ghost (2012).
+- Swindle - Forest Funk (2012).
+- Tom Browne - Throw Down (1979).
+- Donald Byrd - You And The Music (1975).
+- Candido - Thousand Finger Man (1979).
+- Toro Y Moi - Harm In Change (2013).
+- Kyodai - Breaking (2012).
+- Django Django - Waveforms (2011).
+- The Gaslamp Killer - Nissim (2012).
+- Owiny Sinoma Band - Harpoon Land (2013).
+- Guts - Brand New Revolution (2012).
+- Yuna - Live Your Life (Melo-X Motherland God Mix) (2012).
+- Tuccillo, Kiko Navarro Ft. Amor - Lovery (Soul Cuban Vibe Remix) (2013).
+- Richard Spaven - 1759 (Outro) (2013).
+- Hackman - Forgotten Notes (2012).
+
+- Sinkane Ft. Salvatore Principato - Shark Week (2014). Platform
+- William Onyeabor - Body & Soul (1980). Platform
+- Four Tet - Kool FM (2013). Platform
+- Mount Kimbie - Made To Stray (2013). Platform
+- Anushka - World In A Room (2014). Platform
+- Smokey Robinson - Why You Wanna See My Bad Side? (1978). Platform
+- The Crusaders Ft. Randy Crawford - Street Life (1979). Platform
+- Flume - What You Need (2012). Platform
+- Earl Sweatshirt Ft. Vince Staples & Casey Veggies - Hive (2013). Platform
+- Portishead - Numb (1994).
+- Jon Wayne - Black Magic (2013). Platform
+- Roman GianArthur Irvin - I-69 (2013). Platform
+- Lion Babe - Treat Me Like Fire (2013). Platform
+- Dâm-Funk - Killdat (2009). Platform
+- Jamie Lidell - RunAway (2014). Platform
+- CHVRCHES - Recover (Cid Rim Remix) (2013). Platform
+- Jimmy Edgar - Let Yrself Be (2012). Platform
+- Clap! Clap! - Viarejo (2013). Platform
+- Maga Bo Ft. Rosangela Macedo And Marcelo Yuka - No Balanço Da Canoa (2012). Platform
+- The Diabolical Liberties - Kimchi King Kong (2020).
+- TSVI - Labyrint (2019). Platform
+- Gafacci - Azaa (Branko Edit) (2020). Platform
+- Photay - The People (2020). Platform
+- Kaytranada - Pure Agony (2020). Platform
+- Arthur Adams - Fight For Your Rights (1971). Platform
+- Catching Flies - New Gods (Ron Basejam Remix) (2020). Platform
+- Emma Jean Thackray - Movementt (2020). Platform
+- Idris Muhammad - Could Heaven Ever Be Like This (1977). Platform
+- Jeff Parker - Fusion Swirl (2020). Platform
+- Jonny Faith - Ascending (2019). Platform
+- Khruangbin - Time (You And I) (2020). Platform
+- Khruangbin - Time (You And I) - GP Dub (2020). Platform
+- MFSB - Mysteries Of The World (1980). Platform
+- Sarathy Korwar Ft. Zia Ahmed, Mirande & Swadesi - Birthright (The Diabolical Liberties Remix) (2020). Platform
+- LYAM - Why Don't I Feel (2020).
+- STR4RA - Aspects (Demus Dub) (2020). Platform
+- Sauce And Dogs - Wax & Buff (2020). Platform
+- Kassa Overall Ft. Carlos Overall - Landline (2020). Platform
+- The Undisputed Truth - Sandman (1979). Platform
+- Joe Armon-Jones Ft. Obongjayar - Self:Love (2019). Platform
+- Kamasi Washington Ft. Shabaka Hutchings - The Message (GP And 2b04 Remix) (2015). Platform
+- Zara McFarlane - State Of Mind (Alex Patchwork Remix) (2020).
+- Azymuth - Jazz Carnival (1979). Platform
+- KOKOROKO - Baba Ayoola (2020). Platform
+- BadBadNotGood Ft. MF Doom - The Chocolate Conquistadors (2020). Platform
+- Fuselage - Times Up (2000).
+- Jamiroquai - Emergency On Planet Earth (London Rican Mix) (1993). Platform
+- Dele Sosimi x Medlar - Full Moon (2020).
+- Bruise - Grand Hi (2020). Platform
+- Mr. Mitch Ft. Duval Timothy - Lost Touch (2017). Platform
+- Secret Night Gang - The Sun (2020). Platform
+- Call Super - Ekkles (2020). Platform
+- Roni Size / Reprazent - Natural Thing (1996). Platform
+- Madlib - Muslim Christian (2020). Platform
+- DRS & Dynamite MC Ft. Calibre - Worldwide FM (2020). Platform
+- ESG - The Beat (1983). Platform
+- Swindle Ft. Greentea Peng - What More (2020). Platform
+- JAB - Directions (2019). Platform
+- KOKOKO! - Bim Bam Bam (2020). Platform
+- José James - Desire (Moodymann Remix) (2008). Platform
+- Jahari Massamba Unit - Riesling Pour Robert (Rhythm Heavy Version) (2020). Platform
+
+- # FlyLo FM
+ 
+- Flying Lotus Ft. Niki Randa - Getting There (2012).
+- Flying Lotus Ft. Erykah Badu - See Thru To U (2012).
+- Flying Lotus - Computer Face (2010).
+- Flying Lotus - Crosswerved (2013).
+- Clams Casino - Crystals (2013).
+- Flying Lotus - Be Spin (2013).
+- Flying Lotus - The Diddler (2013).
+- Flying Lotus Ft. Niki Randa - The Kill (2013).
+- Captain Murphy - Evil Grin (2013).
+- Flying Lotus - Catapult Man (2013).
+- Hudson Mohawke - 100HM (2013).
+- Tyler, The Creator - Garbage (2013).
+- Machinedrum - She Died There (2011).
+- Thundercat - Oh Sheit It's X (2013).
+- Flying Lotus - Stonecutters (2013).
+- Shadow Child - 23 (2012).
+- Outkast - Elevators (Me & You) (1996).
+- Kingdom - Stalker Ha (2011).
+- Dabrye - Encoded Flow (2006).
+- DJ Rashad Ft. Heavee D - It's Wack (2013).
+- Aphex Twin - Windowlicker (1999).
+
+- Curtis Mayfield - Eddie You Should Know Better (1972). Platform
+- Doris - You Never Come Closer (1970). Platform
+- Flying Lotus Ft. Krayzie Bone - Medication Medication (2014). Platform
+- XXYYXX - What We Want (2014). Platform
+- Lapalux - Make Money (2014). Platform
+- The Gaslamp Killer - Shred You To Bits (2014). Platform
+- Mono/Poly Ft. Thundercat - B Adams (2014). Platform
+- Flying Lotus - Osaka Trade (2013). Platform
+- DOOM - Masquatch (2014). Platform
+- Flying Lotus - Early Mountain (2014). Platform
+- Dimlite - Into Vogon Skulls (2013). Platform
+- KNOWER - Fuck The Makeup, Skip The Shower (2010). Platform
+- Kaskade - 4 AM (Araabmuzik Remix) (2006). Platform
+- Thundercat - Dragonball Durag (2020). Platform
+- Madlib - Road Of The Lonely Ones (2020). Platform
+- J Dilla - Fuck the Police (2001). Platform
+- Flying Lotus Ft. Denzel Curry - Black Balloons Reprise (2019). Platform
+- Channel Tres - Topdown (2018). Platform
+- Knxwledge Ft. NxWorries - Itkanbe (2020). Platform
+- Syunsuke Ono - Glomerulonephrophaty (2018). Platform
+- King Crimson - In The Wake Of Poseidon (1970). Platform
+- Shabazz Palaces - Shine A Light (2017). Platform
+- Freddie Gibbs - Automatic (2018). Platform
+- Mac Miller Ft. Flying Lotus - Black Balloons Reprise (Mac Miller Remix) (2020). Platform
+- DOOM - LunchBreak (2020). Platform
+- Little Snake - Homicidal Thoughts (2020). Platform
+- Tierra Whack - Arrogant (2020). Platform
+- Captain Murphy - Possessed (2020). Platform
+- Zack Fox - The Bean Kicked In (2019). Platform
+- Flying Lotus & Ras G - Black Heaven (2019). Platform
+- Dorian Concept - You're Untouchable (2020). Platform
+- Flying Lotus - U Got To Be Odd (2020). Platform
+- David Firth - Afterlife Currency Skit (2020). Platform
+- Ross From Friends - The Daisy (2020). Platform
+- Louis Cole - Planet X (2020). Platform
+- Ras G - Been Cosmic (2014). Platform
+- Smoke DZA - Spiritual (2020). Platform
+
+#  The Lowdown 91.1 FM
+
+- Aaron Neville - Hercules (1973).
+- B.T. Express - Do It (Til' You're Satisfied) (1974).
+- El Chicano - Viva Tirado (1970).
+- George McCrae - I Get Lifted (1974).
+- Marlene Shaw - California Soul (1969).
+- Smokey Robinson - Cruisin' (1979).
+- The Delfonics - Ready Or Not Here I Come (Can't Hide From Love) (1968).
+- The Five Stairsteps - O-o-h Child (1970).
+- The Soul Searchers - Ashley's Roachclip (1974).
+- The Trammps - Rubber Band (1975).
+- The Undisputed Truth - Smiling Faces Sometimes (1971).
+- War - The Cisco Kid (1972).
+
+- Pleasure - Bouncy Lady (1974). Platform
+- The Delfonics - Funny Feeling (1970). Platform
+- The Ohio Players - Climax (1974). Platform
+- The Chakachas - Stories (1972). Platform
+- War & Eric Burdon - Magic Mountain (1976). Platform
+- Johnny "Guitar" Watson - Superman Lover (1976). Platform
+- The Jackson Sisters - I Believe In Miracles (1973). Platform
+- Brass Construction - Changin' (1975). Platform
+
+# Radio Mirror Park
+
+- Battle Tapes - Feel The Same (2012).
+- Dan Croll - From Nowhere (Baardsen Remix) (2013).
+- DJ Mehdi Ft. Fafi - Lucky Boy (Outlines Remix) (2007).
+- Feathers - Dark Matter (2013).
+- Jai Paul - Jasmine (Demo) (2012).
+- Living Days - Little White Lie (2013).
+- Miami Horror - Sometimes (2010).
+- Tony Castles - Heart In The Pipes (KAUF Remix) (2011).
+- Toro Y Moi - So Many Details (2013).
+- Twin Shadow - Shooting Holes (2010).
+- Twin Shadow - Old Love/New Love (2013).
+- Yacht - Psychic City (Classixx Remix) (2010).
+- Black Strobe - Boogie In Zero Gravity (2012).
+- Age of Consent - Colours (2013).
+- Favored Nations - The Set Up (2013).
+- Neon Indian - Change Of Coast (2013).
+- Nite Jewel - Nowhere To Go (2013).
+- Yeasayer - Don't Come Close (2013).
+- The Chain Gang Of 1974 - Sleepwalking (2013).
+- Poolside - Do You Believe (2012).
+- The C90's - Shine A Light (Flight Facilities Remix) (2010).
+- HEALTH - High Pressure Dive (2013).
+
+- The Ruby Suns - In Real Life (2013). Platform
+- Neon Indian - Polish Girl (2011). Platform
+- Mitzi - Truly Alive (2013). Platform
+- KAUF - When You're Out (2013). Platform
+- Panama - Always (2013). Platform
+- Twin Shadow - Forget (2010). Platform
+- !!! - One Girl/One Boy (2013). Platform
+- SBTRKT Ft. Roses Gabor - Pharaohs (2011). Platform
+- Yeasayer - O.N.E. (2010). Platform
+- Toro Y Moi - New Beat (2011). Platform
+- Niki & The Dove - The Drummer (2011). Platform
+- Little Dragon - Crystalfim (2011). Platform
+- Hot Chip - Flutes (2012). Platform
+- Dom - Living In America (2010). Platform
+- Holy Ghost! - Hold On (2011). Platform
+- Scenic - Mesmerised (2013). Platform
+- Cut Copy - Strangers In The Wind (2008). Platform
+- Age Of Consent - Heartbreak (2012). Platform
+
+# Space 103.2
+
+- Bootsy's Rubber Band - I'd Rather Be With You (1976).
+- D Train - You're The One For Me (1981).
+- Eddie Murphy - Party All The Time (1985).
+- Evelyn "Champagne" King - I'm In Love (12" Dance Mix) (1981).
+- Kano - Can't Hold Back (Your Loving) (1981).
+- Kleeer - Tonight (1984).
+- Bernard Wright – Haboglabotribin’ (1981).
+- One Way - Cutie Pie (1982).
+- Rick James - Give It To Me Baby (1981).
+- Sho Nuff - Funkasize You (1978).
+- Stevie Wonder - Skeletons (1987).
+- Taana Gardner – Heartbeat (Club Version) (1981).
+- Zapp - Heartbreaker Pts. 1-2 (1983).
+
+- The Dazz Band - Joystick (1983). Platform
+- Zapp - Do It Roger (1981). Platform
+- Imagination - Flashback (1982). Platform
+- Parliament - Mothership Connection (Star Child) (1975). Platform
+- The Fatback Band - Gotta Get My Hands (On Some Money) (1980). Platform
+- Billy Ocean - Nights (Feel Like Gettin' Down) (1981). Platform
+- Parliament - Flash Light (1977). Platform
+- Cameo - Back And Forth (1986). Platform
+- Central Line - Walking Into Sunshine (1981). Platform
+
+# Vinewood Boulevard Radio
+
+- Wavves - Nine Is God (2013).
+- FIDLAR - Cocaine (2012).
+- Bass Drum of Death - Crawling After You (2013).
+- Hot Snakes - This Mystic Decade (2004).
+- Moon Duo - Sleepwalker (2012).
+- Sam Flax - Fire Doesn't Burn Itself (2012).
+- Shark? - California Grrls (2013).
+- The Black Angels - Black Grease (2005).
+- METZ - Wet Blanket (2012).
+- Ceremony - Hysteria (2012).
+- Ty Segall Band - Diddy Wah Diddy (2012).
+- Thee Oh Sees - The Dream (2011).
+
+- The Men - Turn It Around (2012). Platform
+- Bleached - Next Stop (2013). Platform
+- Jeff The Brotherhood - Sixpack (2012). Platform
+- Coliseum - Used Blood (2013). Platform
+- The Soft Pack - Answer To Yourself (2010). Platform
+- The Orwells - Who Needs You (2014). Platform
+- Nobunny - Gone For Good (2010). Platform
+- Mind Spiders - Fall In LIne (2012). Platform
+
+# Los Santos Rock Radio
+
+- Billy Squier - Lonely Is the Night (1981).
+- Bob Seger - Hollywood Nights (1978).
+- Bob Seger - Night Moves (1976).
+- Chicago - If You Leave Me Now (1976).
+- Def Leppard - Photograph (1983).
+- Don Johnson - Heartbeat (1986).
+- Elton John - Saturday Night's Alright for Fighting (1973).
+- Foreigner - Dirty White Boy (1979).
+- Gerry Rafferty - Baker Street (1978).
+- The Greg Kihn Band - The Breakup Song (They Don't Write 'Em) (1981).
+- Julian Lennon - Too Late for Goodbyes (1984).
+- Kenny Loggins - I'm Free (Heaven Helps The Man) (1984).
+- Phil Collins - I Don't Care Anymore (1983).
+- Queen - Radio Ga Ga (1984).
+- Robert Plant - Big Log (1983).
+- Simple Minds - All the Things She Said (1985).
+- The Small Faces - Ogdens' Nut Gone Flake (1968).
+- Steve Winwood - Higher Love (1986).
+- Stevie Nicks - I Can't Wait (1985).
+- The Alan Parsons Project - I Wouldn't Want To Be Like You (1977).
+- The Doobie Brothers - What a Fool Believes (1978).
+- The Cult - Rain (1985).
+- Steve Miller - Rock 'N Me (1976).
+
+- Creedence Clearwater Revival - Fortunate Son (1969). Platform
+- Starship - We Built This City (1985). Platform
+- Mountain - Mississippi Queen (1970). Platform
+- Kenny Loggins - Danger Zone (1986). Platform
+- Alannah Miles - Black Velvet (1989). Platform
+- Pat Benatar - Shadows of the Night (1982). Platform
+- Belinda Carlisle - Circle In The Sand (1987). Platform
+- Kansas - Carry On Wayward Son (1976). Platform
+- Boston - Peace of Mind (1976). Platform
+- Harry Chapin - Cats in the Cradle (1974). Platform
+- Survivor - Burning Heart (1985). Platform
+- Humble Pie - 30 Days In The Hole (1972). Platform
+- ZZ Top - Gimme All Your Lovin' (1983). Platform
+- Yes - Roundabout (1971). Platform
+- Broken English - Comin' On Strong (1987). Platform
+
+# Non-Stop-Pop FM
+
+- All Saints - Pure Shores (2000).
+- Britney Spears - Gimme More (2007).
+- Corona - The Rhythm of the Night (Rapino Brothers Radio Version) (1993).
+- Fergie Ft. Ludacris - Glamorous (2006).
+- Hall & Oates - Adult Education (1983).
+- Jane Child - Don't Wanna Fall In Love (1989).
+- Kelly Rowland - Work (Freemasons Remix) (2008).
+- Mis-Teeq - Scandalous (2003).
+- Modjo - Lady (Hear Me Tonight) (2000).
+- N-Joi - Anthem (1990).
+- Pet Shop Boys - West End Girls (1984).
+- Rihanna - Only Girl (In The World) (2010).
+- Robyn - With Every Heartbeat (2007).
+- Stardust - Music Sounds Better With You (1998).
+- Wham! - Everything She Wants (1984).
+- Amerie - 1 Thing (2005).
+ 
+- Dr. Robert Ft. Kym Mazelle - Wait! (1989). Platform
+- Sly Fox - Let's Go All The Way (1985). Platform
+- Taylor Dayne - Tell It To My Heart (1987). Platform
+- Living In A Box - Living In A Box (1987). Platform
+- INXS - New Sensation (1987). Platform
+- Bobby Brown - On Our Own (1989). Platform
+- Bronski Beat - Small Town Boy (1984). Platform
+- Naked Eyes - Promises, Promises (1983). Platform
+- Simply Red - Something Got Me Started (Steve Silk Hurley Mix) (1991). Platform
+- Sneaker Pimps - 6 Underground (1996). Platform
+- Backstreet Boys - I Want It That Way (1999). Platform
+- Jamiroquai - Alright (1996). Platform
+- Morcheeba - Tape Loop (1996). Platform
+- Moloko - The Time Is Now (2000). Platform
+- Gorillaz - Feel Good Inc. (2005). Platform
+- Robbie Williams Ft. Kylie Minogue - Kids (2000). Platform
+- Dirty Vegas - Days Go By (2001). Platform
+- Cassie - Me & U (2006). Platform
+- Maroon 5 - Moves Like Jagger (2011). Platform
+- M.I.A. - Bad Girls (2012). Platform
+- M83 - Midnight City (2011). Platform
+- Lady Gaga - Applause (2013). Platform
+- Mike Posner - Cooler Than Me (2009). Platform
+- Lorde - Tennis Court (2013). Platform
+- The Black Eyed Peas - Meet Me Halfway (2009). Platform
+- Real Life - Send Me An Angel (1983). Platform
+
+# Radio Los Santos
+
+- YG - I'm A Real 1 (2013).
+- 100s - Life Of A Mack (2013).
+- Ab-Soul Ft. Kendrick Lamar - Illuminate (2012).
+- A$AP Rocky - R-Cali (2013).
+- Marion Band$ Ft. Nipsey Hussle - Hold Up (2013).
+- BJ The Chicago Kid Ft. Freddie Gibbs And Problem - Smokin' And Ridin' (2013).
+- Kendrick Lamar - A.D.H.D (2011).
+- Jay Rock Ft. Kendrick Lamar - Hood Gone Love It (2011).
+- The Game Ft. 2 Chainz And Rick Ross - Ali Bomaye (2012).
+- Freddie Gibbs - Still Livin (2012).
+- Future - How It Was (2013).
+- Problem Ft. Glasses Malone - Say That Then (2013).
+- Clyde Carson ft. The Team - Slow Down (2012).
+- Gucci Mane Ft. Ciara - Too Hood (2011).
+- Gangrene - Bassheads (2013).
+- Danny Brown & Action Bronson - Bad News (2015). Platform
+- G-Side feat. G-Mane - Relaxin' (2011). Platform
+- A$AP Ferg - Work (2013). Platform
+- Trouble Ft. Gucci Mane - Everday (2012). Platform
+- Kendrick Lamar - Swimming Pools (Drank) (2012). Platform
+- Travi$ Scott Ft. 2 Chainz & T.I. - Upper Echelon (2013). Platform
+- Danny Brown Ft. A$AP Rocky & Zelooperz - Kush Coma (2013). Platform
+- Ace Hood Ft. Future & Rick Ross - Bugatti (2013). Platform
+- ScHoolboy Q Ft. Kendrick Lamar - Collard Greens (2014). Platform
+- Chuck Inglish Ft. Ab-Soul & Mac Miller - Came Thru/Easily (2014). Platform
+- Young Scooter Ft. Gucci Mane - Work (2013). Platform
+- Problem & IamSu Ft. Bad Lucc & Sage The Gemini - Do It Big (2013). Platform
+- Skeme - Millions (2013). Platform
+- Ab-Soul Ft. ScHoolboy Q - Hunnid Stax (2014). Platform
+- Freddie Gibbs & Mike Dean - Sellin' Dope (2014). Platform
+- Young Scooter Ft. Trinidad James - I Can't Wait (2013). Platform
+
+- Chainz Ft. Ty Dolla $ign & Trey Songz & Jhené Aiko - It's A Vibe (2017). Platform
+- A$AP Ferg - Plain Jane (2017). Platform
+- Big Sean & Hit-Boy - What A Life (2021). Platform
+- Cordae - Kung Fu Platform
+- D-Block Europe & Offset - Chrome Hearts Platform
+- Fredo Santana Ft. Chief Keef, Ball Out & Tadoe - Go Live Platform
+- French Montana - Lockjaw (feat. Kodak Black) Platform
+- Future - Feed Me Dope Platform
+- Future - Low Life (feat. The Weeknd) Platform
+- Jay Rock Ft. Kendrick Lamar - Wow Freestyle. Platform
+- Kodak Black Ft. Travis Scott & Offset - ZEZE. Platform
+- Migos - Stir Fry Platform
+- MOUNT WESTMORE, Snoop Dogg, Ice Cube, E-40 & Too $hort - Big Subwoofer Platform
+- Polo G Ft. Juice WRLD – Flex. Platform
+- Roddy Ricch - The Box Platform
+- Saweetie - My Type Platform
+- Tyler, The Creator – LEMONHEAD (feat. 42 Dugg) Platform
+- Vince Staples - Big Fish Platform
+- Young Stoner Life, Young Thug & Gunna - Ski Platform
+- Freddie Gibbs - Miami Vice (feat. Pusha T & Kevin Cossom) Platform
+- Freddie Gibbs - Pick The Phone Up (feat. Juicy J) Platform
+- Hit-Boy feat. Dom Kennedy - XL Platform
+- Mike Dean and Offset - So Fancy Platform
+- Mike Dean and Rich the Kid - Blue Cheese Platform
+- Mozzy feat. YG - Hoppin’ Out Platform
+- Nez feat. ScHoolboy Q - Let’s Get It Platform
+- TiaCorine produced by Kenny Beats - Coochie Platform
+
+# Channel X
+
+- Agent Orange - Bored Of You (1980).
+- Black Flag - My War (1984).
+- Circle Jerks - Rock House (1985).
+- Fear - The Mouth Don't Stop (The Trouble With Women Is) (1985).
+- Off! - What's Next (2013).
+- The Adolescents - Amoeba (1981).
+- Descendents - Pervert (1985).
+- The Germs - Lexicon Devil (1978).
+- The Weirdos - Life Of Crime (1985).
+- T.S.O.L. - Abolish Government/Silent Majority (1981).
+- Youth Brigade - Blown Away (1983).
+- Suicidal Tendencies - Subliminal (1983).
+
+- D.O.A. - The Enemy (1980). Platform
+- MDC - John Wayne Was A Nazi (1982). Platform
+- The Zeros - Don't Push Me Around (1977). Platform
+- X - Los Angeles (1980). Platform
+- D.R.I. - I Don't Need Society (1985). Platform
+- Red Kross - Linda Blair (1982). Platform
+
+# Rebel Radio
+
+- Charlie Feathers - Can't Hardly Stand It (1956).
+- Hank Thompson - I Don't Hurt Anymore (1954).
+- Hasil Adkins - Get Out of My Car (1966).
+- Jerry Reed - You Took All The Ramblin' Out Of Me (1972).
+- Johnny Cash - The General Lee (1982).
+- Johnny Paycheck - It Won't Be Long (And I'll Be Hating You) (1968).
+- Ozark Mountain Daredevils - If You Wanna Get To Heaven (1973).
+- Waylon Jennings - Are You Sure Hank Done It This Way (1975).
+- Waylon Jennings - I Ain't Living Long Like this (1979).
+- Willie Nelson - Whiskey River (1973).
+- C.W. McCall - Convoy (1975).
+- Exclusivo de PS4. PC y Xbox One
+- Homer And Jethro - She Made Toothpicks Of The Timber Of My Heart (1950).
+- The Highwaymen - Highwayman (1985).
+- Tammy Wynette - D-I-V-O-R-C-E (1968).
+- Ray Price - Crazy Arms (1956).
+- Marvin Jackson - Dippin' Snuff (1973).
+- Charlie Feathers - Get With It (1956).
+
+# Soulwax FM
+
+- Palmbomen - Stock (Soulwax Remix) (2013)
+- Fatal Error - Fatal Error (1988)
+- Supersempfft - Let's Beam Him Up (1979)
+- Mim Suleiman - Mingi (2010)
+- FKCLUB - The Strange Art (Inflagranti Remix) (2013)
+- Matias Aguayo - El Sucu Tucu (2013)
+- Daniel Avery - Naive Response (2013)
+- Joe Goddard Ft. Valentina - Gabriel (Soulwax Remix) (2012)
+- Daniel Maloso - Body Music (2012)
+- Green Velvet & Harvard Bass - Lazer Beams (2012)
+- Zombie Nation - Tryouts (2012)
+- Tom Rowland - Nothing But Pleasure (2013)
+- Jackson And His Computerband - Arp#1 (2013)
+- Goose - Synrise (Soulwax Remix) (2010)
+- Transistorcake - Mr. Croissant Taker (2013)
+- Tiga - Plush (Jacques Lu Cont Remix) (2012)
+- The Hacker - Shockwave (Gesaffelstein Remix) (2012)
+- Pulp - After You (Soulwax Remix) (2013)
+
+# East Los FM
+
+- Los Buitres De Culiacan Sinaloa - El Cocaino (2009)
+- Instituto Mexicano Del Sonido - Es-toy (2012)
+- Niña Dioz - Criminal Sound (2010)
+- La Vida Bohème - Radio Capital (2011)
+- Fandango - Autos, Moda Y Rock And Roll (1987)
+- Don Cheto - El Tatuado (2010)
+- Sonora Dinamita - Se Me Perdió La Cadenita (1978)
+- She's A Tease - Fiebre De Jack (2011)
+- Maldita Vecindad - Pachuco (1991).
+- Hechiceros Band - El Sonidito (2008)
+- Milkman - Fresco (2012)
+- Jessy Bulbo - Maldito (2006)
+- La Liga Ft. Alika - Yo Tengo El Don (2013)
+- Los Tigres Del Norte - La Granja (2009)
+- Los Ángeles Negros - El Rey Y Yo (1970)
+
+# West Coast Classics
+
+- 2pac - Ambitionz Az A Ridah (1996).
+- Compton's Most Wanted - Late Night Hype (1990).
+- DJ Quik - Dollaz + Sense (1995).
+- Dr. Dre Ft. Snoop Dogg - Still D.R.E. (1999).
+- King Tee Ft. Ice Cube & Breeze - Played Like A Piano (1990).
+- Dr. Dre Ft. Snoop Dogg - The Next Episode (1999).
+- Ice Cube - You Know How We Do It (1993).
+- Kausion Ft. Ice Cube - What You Wanna Do? (1995).
+- Kurupt Ft. Slip Capone & Tray Dee - C-Walk (1998).
+- Mack 10 & Tha Dogg Pound - Nothin' But The Cavi Hit (1996).
+- MC Eiht - Straight Up Menace (1993).
+- N.W.A. - Appetite For Destruction (1991).
+- N.W.A. - Gangsta Gangsta (1988).
+- The Dogg Pound - What Would You Do (1994).
+- Snoop Dogg Ft. Dat Nig Ga Daz - Gin N' Juice (1993).
+- Geto Boys - Mind Playin' Tricks (1991).
+- Too $hort - So You Want To Be A Gangster (1992).
+
+- Jayo Felony Ft. Kevin Goins - Sherm Stick (1995). Platform
+- Warren G - This DJ (1994). Platform
+- CPO Ft. MC Ren - Ballad Of A Menace (1990). Platform
+- E-40 Ft. The Click - Captain Save A Hoe (1994). Platform
+- The Conscious Daughters - We Roll Deep (1993). Platform
+- Eazy-E Ft. Ice Cube - No More ?'s (1988). Platform
+- South Central Cartel - Servin' 'Em Heat (1993). Platform
+- The Lady Of Rage Ft. Snoop Dogg - Afro Puffs (1994). Platform
+- Westside Connection - Bow Down (1996). Platform
+- Spice 1 Ft. MC Eiht - The Murda Show (1993). Platform
+- Bone Thugs-N-Harmony - 1st Of Tha Month (1995). Platform
+- Luniz Ft. Michael Marshall - I Got 5 On It (1995). Platform
+
+- 40 Glocc Ft. L.V. - Pa Pa’s Lil’ Soldier (2002). Platform
+- Nas Ft. Dr. Dre - Nas Is Coming (1996). Platform
+- Obie Trice Ft. Eminem & Dr. Dre - Shit Hits The Fan (2003). Platform
+- Jay-Z - Trouble (2006) Platform
+- 50 Cent Ft. Mobb Deep - Outta Control (Remix) (2005). Platform
+- Dr. Dre Ft. Daz & Snoop Dogg - Lil' Ghetto Boy (1992). Platform
+- 50 Cent - In Da Club (2003). Platform
+- Dr. Dre Ft. Snoop Dogg, Kurupt & Nate Dogg - The Next Episode (1999). Platform
+- Sam Sneed feat. Dr. Dre - U Better Recognize (1994). Platform
+- Ice Cube Ft. Dr. Dre & MC Ren - Hello (2000). Platform
+- 2Pac Ft. George Clinton And Nanci Fletcher - Can't C Me (1996). Platform
+- Blackstreet Ft. Dr. Dre & Queen Pen - No Diggity (1996). Platform
+- Dr. Dre Ft. Hittman, Six-Two, Nate Dogg & Kurupt - Xxplosive (1999). Platform
+- 2Pac Ft. Roger & Dr. Dre - California Love (1995). Platform
+- Mary J. Blige - Family Affair (2001). Platform
+- Dr. Dre - Keep Their Heads Ringin' (1995). Platform
+- Truth Hurts & Rakim - Addictive (2002). Platform
+
+# The Lab
+
+- Gangrene Ft. Samuel T. Herring & Earl Sweatshirt - Play It Cool (2015). 
+- Ab-Soul Ft. Aloe Blacc - Trouble (2015).
+- Tunde Adebimpe Ft. Sal P & Sinkane - Speedline Miracle Masterpiece (2015).
+- MC Eiht & Freddie Gibbs Ft. Kokane - Welcome To Los Santos (2015).
+- Phantogram - K.Y.S.A (2015).
+- Vybz Kartel - Fast Life (2015).
+- King Avriel Ft. A$AP Ferg - 20's 50's 100's (2015).
+- MNDR Ft. Killer Mike - Lock & Load (2015).
+- Popcaan Ft. Freddie Gibbs - Born Bad (2015).
+- E-40 Ft. Dâm-Funk & Ariel Pink - California (2015).
+- Wavves - Leave (2015).
+- Curren$y & Freddie Gibbs - Fetti (2015).
+- Little Dragon - Wanderer (2015).
+
+# Blonded Los Santos 97.8 FM
+
+- Todd Rundgren - International Feel (1973). Platform
+- Panda Bear - Mr Noah (2015). Platform
+- Frank Ocean - Provider (2017). Platform
+- ScHoolboy Q Ft. Lance Skiiiwalker - Kno Ya Wrong (2016). Platform
+- SWV - Rain (1997). Platform
+- Joy Again - On A Farm (2017). Platform
+- Frank Ocean - Ivy (2016). Platform
+- Curtis Mayfield - So In Love (1975). Platform
+- Marvin Gaye - When Did You Stop Loving Me, When Did I Stop Loving You (1978). Platform
+- Les Ya Toupas Du Zaïre - Je Ne Bois Pas Beaucoup (1976). Platform
+- Drexciya - Andreaen Sand Dunes (1999). Platform
+- Jay-Z - Dead Presidents II (1996). Platform
+- Lonnie Liston Smith - A Garden Of Peace (1974). Platform
+- Frank Ocean - Crack Rock (2012). Platform
+- MC Mack - EZ Come, EZ Go (2000). Platform
+- Aphex Twin - IZ-US (1997). Platform
+- Burial - Hiders (2013). Platform
+- Future - Codeine Crazy (2014). Platform
+- Frank Ocean - Chanel (2017). Platform
+- Lil Uzi Vert - For Real (2017). Platform
+- Migos - First 48 (2014). Platform
+- Suspect - FBG (2017). Platform
+- Frank Ocean - Nights (2016). Platform
+- Gunna Ft. Playboi Carti - YSL (2017). Platform
+- Chief Keef Ft. King Louie - Winnin' (2014). Platform
+- Lil Sko - Miss White Cocaine (2017). Platform
+- JME Ft. Giggs - Man Don't Care (2015). Platform
+- Alex G - Master (2015). Platform
+- Frank Ocean - Pretty Sweet (2016). Platform
+
+# Los Santos Underground Radio
+
+- Am$trad Billionaire - The Plan (2013). Platform
+- Ara Koufax - Natural States (Edit) (2017). Platform
+- Truncate - WRKTRX3 (2018). Platform
+- Chris Lum - You're Mine (Clean Version) (2014). Platform
+- Swayzak - In The Car Crash (Headgear's Always Crashing In The Same Car Mix) (2002). Platform
+- D. Lynnwood - Bitcoins (Original Mix) (2018). Platform
+- Leonard Cohen - You Want It Darker (Solomun Remix) (2016). Platform
+- Bryan Ferry - Don't Stop The Dance (Todd Terje Remix) (2013). Platform
+- Floorplan - Spin (Original Mix) (2016). Platform
+- Cevin Fisher - The Freaks Come Out (Original 2000 Freak Mix) (2000). Platform
+- Denis Horvat - Madness Of Many (2018). Platform
+- Johannes Brecht - Incoherence (2018). Platform
+- Solomun - Ich Muss Los (2018). Platform
+- Matthew Dear - Monster (2018). Platform
+- Alex Metric & Ten Ven - The Q (2018). Platform
+- Solomun - Customer Is King (2018). Platform
+- Adam Port - Planet 9 (2018). Platform
+- Dubfire - The End To My Beginning (2018). Platform
+- Tale of Us - Overture (2018). Platform
+- Tale of Us - 1911 (2018). Platform
+- Tale of Us - Trevor's Dream (2018). Platform
+- Tale of Us - Vinewood Blues (2018). Platform
+- Tale of Us - Anywhere (2018). Platform
+- Tale of Us - Symphony Of The Night (2018). Platform
+- Tale of Us - Another World (2018). Platform
+- Tale of Us - The Portal (2018). Platform
+- Tale of Us - Solitude (2018). Platform
+- Tale of Us - Morgan's Fate (2018). Platform
+- Tale of Us - Fisherman's Horizon (2018). Platform
+- Tale of Us - Myst (2018). Platform
+- Tale of Us - Seeds (2018). Platform
+- Tale of Us - Endless Journey (2018). Platform
+- Tale of Us - Valkyr (2018). Platform
+- Tale of Us - In Hyrule (2018). Platform
+- Tale of Us - Disgracelands (2018). Platform
+- Tale of Us - Heart Of Darkness (2018). Platform
+- Warp Factor 9 - The Atmospherian (Tornado Wallace Remix) (2017). Platform
+- The Egyptian Lover - Electro Pharaoh (Instrumental) (2005). Platform
+- Aux 88 - Sharivari (Digital Original Aux 88 Mix) (2014). Platform
+- Ron Hardy - Sensation (Dub Version) (2011). Platform
+- Romanthony - Bring U Up (Deetron Edit) (2011). Platform
+- Solar - 5 Seconds (2017). Platform
+- Marcus L. - Telstar (2018). Platform
+- TCK FT. JG - Reach Out Your Hand (Erol Alkan Rework) - GTA Edit (2018). Platform
+- Caravaca - Yes I Do (2017). Platform
+- Mashrou' Leila - Roman (Bas Ibellini Mix) (2018). Platform
+- Future Four - Connection (I-Cube Rework) (2018). Platform
+- Oni Ayhun - OAR03-B (2008). Platform
+- Rite De Passage - Quinquerime (2017). Platform
+- Sharif Laffrey - And Dance (2018). Platform
+- Carl Finlow - Convergence (2004). Platform
+- Derrick Carter - Where Ya At, Now? (2002). Platform
+- Nancy Martin - Can't Believe (1982). Platform
+- Art Of Noise - Beat Box (1983). Platform
+- Ron Hardy Ft. Adrian Jett - Sensation (1985). Platform
+- The Black Madonna - He Is The Voice I Hear (2016). Platform
+- The Black Madonna Ft. Jamie Principle - We Still Believe (2013). Platform
+- The Black Madonna - A Jealous Heart Never Rests (2013). Platform
+- The Black Madonna - We Can Never Be Apart (2013). Platform
+- Joe Jackson - Steppin' Out (1982). Platform
+- Metro Area Ft. Dei Lewison - Miura (2002). Platform
+- Steve Poindexter - Computer Madness (2004). Platform
+- Tiga - Bugatti (2014). Platform
+- Ten City - Devotion (1987). Platform
+- P-Funk All Stars - Hydraulic Pump Pt. 3 (1982). Platform
+- Alex Dolby - Under Pressure (2018) Platform
+
+# iFruit Radio
+
+- Megan Thee Stallion Ft. DaBaby - Cash Shit (2019). Platform
+- Freddie Gibbs & Madlib - Crime Plays (2019). Platform
+- Skepta & Nafe Smalls - Greaze Mode (2019). Platform
+- Pop Smoke Ft. Calboy - 100K On The Coupe (2019). Platform
+- Slowthai - I Need (2019). Platform
+- Danny Brown - Dance In The Water (2016). Platform
+- Egyptian Lover - Everything She Wants (2018). Platform
+- Burna Boy Ft Zlatan - Killin Dem (2019). Platform
+- Skepta & AJ Tracey - Kiss And Tell (2019). Platform
+- D-Block Europe - Kitchen Kings (2019). Platform
+- JME Ft. Giggs - Knock Your Block Off (2019). Platform
+- Travis Scott - HIGHEST IN THE ROOM (2019). Platform
+- Yung Thug Ft. Gunna And Travis Scott - Hot (Remix) (2019). Platform
+- DaBaby Ft. Kevin Gates - POP STAR (2019). Platform
+- Kranium Ft. AJ Tracey - Money In The Bank (2019). Platform
+- J Hus - Must Be (2019). Platform
+- Baauer And Channel Tres Ft. Danny Brown - Ready To Go (2019). Platform
+- D Double E And Watch The Ride Ft. DJ Die, Dismantle And DJ Randall - Original Format (2019). Platform
+- Shoreline Mafia - Wings (2019). Platform
+- Alkaline - With The Thing (2019). Platform
+- Headie One Ft. Skepta - Back To Basics (Floating Points Remix) (2019). Platform
+- City Girls - Act Up (2018). Platform
+- Denzel Curry & YBN Cordae Ft. Take A Daytrip - AL1ENZ (2019). Platform
+- Koffee Ft. Gunna - W (2019). Platform
+- DaBaby - BOP (2019). Platform
+- Naira Marley - Opotoyi (Marlians) (2019). Platform
+- ScHoolboy Q - Numb Numb Juice (2019). Platform
+- ESSIE GANG Ft. SQ Diesel - Pattern Chanel (2019). Platform
+
+# ONLINE
+
+# Kult FM 99.1
+
+- Crack Cloud - Drab Measure (2016). Platform
+- Icky Blossoms - Cycle (2012). Platform
+- Iggy Pop - Nigthclubbing (1977). Platform
+- Promiseland - Take Down The House (2017). Platform
+- Ramones - Time Bomb (1983). Platform
+- The Velvet Underground - Rock And Roll (1970). Platform
+- Misfits - TV Casualty (1978). Platform
+- Charanjit Singh - Raga Madhuvanti (1982). Platform
+- Nick Lowe - So It Goes (1976). Platform
+- The The - This Is The Day (1983). Platform
+- New Order - Age Of Consent (1983). Platform
+- D.A.F. - Liebe Auf Den Ersten Blick (1981). Platform
+- Danzig - Deep (1996). Platform
+- Mac Demarco - On The Level (2017). Platform
+- Automatic - Too Much Money (2019). Platform
+- The Slits - Typical Girls (1979). Platform
+- A Certain Ratio - Faceless (1980). Platform
+- Ariel Pink - Four Shadows (2014). Platform
+- Connie Francis - Many Tears Ago (1960). Platform
+- Joy Division - She's Lost Control (1979). Platform
+- The Voidz - Where No Eagles Fly (2014). Platform
+- The Cramps - Human Fly (1978). Platform
+- The Stooges - Down On The Street (1970). Platform
+- MC Shan Ft. TJ Swan - Left Me Lonely (1987). Platform
+- Colourbox - Baby I Love You So (1986). Platform
+- T La Rock - It's Yours (1984). Platform
+- LL Cool J - Going Back To Cali (1987). Platform
+- Gloria Jones - Tainted Love (1965). Platform
+- Grauzone - Eisbär (1980). Platform
+- The Strokes - Hard To Explain (2001). Platform
+- The Strokes - The Adults Are Talking (2020). Platform
+- The Voidz - Alien Crime Lord (2020). Platform
+- Viagra Boys - Girls And Boys (2020). Platform
+- Lea Porcelain - Pool Song (2020). Platform
+
+# Still Slipping Los Santos
+
+- Mr. Mitch - Not Modular (2019). Platform
+- Rogério Brandão - 5 Violinos (2019). Platform
+- Mr. Mankwa - Feediback (2018). Platform
+- Poison Anna - Submission (2020). Platform
+- Robert Fleck - Hi Press (2020). Platform
+- DJ Scud - No Love (2001). Platform
+- Backroad Gee Ft. Pa Salieu & Ambush Buzzworl- Party Popper (2020). Platform
+- Time Cow & RTKaL - Elephant Man (2020). Platform
+- Josi Devil - The Devil's Dance (2020). Platform
+- L U C Y - Almost Blue (2018). Platform
+- Frank Ocean - Cayendo (Sango Remix) (2020). Platform
+- Overmono - Pieces Of 8 (2020). Platform
+- Instinct - Operation (2020). Platform
+- Waifer - Shower Hour (2012). Platform
+- Frankel & Harper - Trimmers (Instinct Remix) (2019). Platform
+- Horsepower Productions - Givin' Up On Love (2001). Platform
+- Joy Orbison & Overmono - Bromley (2019). Platform
+- Byano DJ - Digdim Patrol (2016). Platform
+- Mez - Babylon Can't Roll (2020). Platform
+- Blanco - Shippuden (2020). Platform
+- Céline Gillain - Wealthy Humans (2018). Platform
+- M1llionz - No Rap Cap (2018). Platform
+- KO - Whip (Acapella) (2019). Platform
+- Pearly - Polar (2019). Platform
+- Spooky Bizzle - Joyride (2018). Platform
+- Thomas Bush - Presence: Martin (2018). Platform
+- RAP - Mad Friday (2019). Platform
+- KO & Joy Orbison - Movements (2020). Platform
+- Kwengface ft. Kenny Allstar & Mixtape Madness - Mad About Bars - S5 - E4 (2020). Platform
+- Pa Salieu ft. Boy Boy - No Warnin' (2020). Platform
+- Kemikal - A Wah! (2010). Platform
+- Cruel Santino - Sparky (2019). Platform
+- Joy Orbison - Coyp (2018). Platform
+
+# Music Locker Radio
+
+- Pierre's Pfantasy Club - Dream Girl (Wet Dream Remix) (1988). Platform
+- B Beat Girls - For The Same Man (Nasty Version) (1983). Platform
+- Diva - Get Up (Club Mix) (1989). Platform
+- Greg Lee - Got U On My Mind (1988). Platform
+- Kamazu - Indaba Kabani (1991). Platform
+- Professor Rhythm - Professor 3 (1991). Platform
+- Robert Owens - Visions (1990). Platform
+- Klein & M.B.O. - The MBO Theme (1983). Platform
+- L´Amour Ft. Krystal - Let´s Make Love Tonight (1984). Platform
+- Plastic Mode - Baja Imperial (Maxi Version) (1985). Platform
+- Masalo - New Dance (2019). Platform
+- Baby´s Gang - Happy Song (Remix) (1985). Platform
+- Shirley Lites - Heat You Up (Melt You Down Mix) - Instrumental (1983). Platform
+- Phortune - String Free (Club LeRay Mix) (1988). Platform
+- Scrappy - Freeze (Limelight Mix) (1988). Platform
+- Mario Diaz Ft. Mr. Lee - Can You Feel It (Jackin Up the Dub 12“Mix) (1988). Platform
+- Tobias Bernstrup - 27 (Laser Mix) (2002). Platform
+- Palms Trax - Petu (Dub Mix) (2020). Platform
+- Shannon - Let The Music Play (Dub Version) (1984). Platform
+- Night Moves - Transdance (New York Disco Mix) (1983). Platform
+- N.O.I.A. - The Rule To Survive (Prins Thomas Remix) (2014). Platform
+- Lisa Lee - When I Call You (Tommy Musto & Frankie Bones British Telecom Mix) (1990). Platform
+- S.L.F. - Show Me What You Got (Acid Mix - Part 1) (1988). Platform
+- Bell-Towers - Want You (Need You) (Adam Port Remix) (2020). Platform
+- Reznik & Mikesh - It's Not You It's Me (2020). Platform
+- Simple Symmetry - Enkidu (Adam Port's 'Tulum By Night' Edit) (2019). Platform
+- Adam Port - White Noise Romantica (2020). Platform
+- Pastaboys Ft. Osunlade - Deep Musique (Rampa Remix) (2017). Platform
+- Rampa - Bimma (2017). Platform
+- &Me - Shadows (2016). Platform
+- Rampa - 2000 (2020). Platform
+- Télépopmusik Ft. Young & Sick - Connection (Reznik & Good Guy Mikesh Remix) (2019). Platform
+- Honey Dijon & Tim K Ft. John Mendelsohn - Thunda (Rampa Remix) (2017). Platform
+- Simian Mobile Disco Ft. Deep Throat Choir - Caught In A Wave (2018). Platform
+- &Me - After Dark (2014). Platform
+- &Me - 1995 (2019). Platform
+- Rampa - Terrace (2019). Platform
+- &Me - Woods (2015). Platform
+- Keinemusik - Civilist (2017). Platform
+- &Me Ft. Sabota - Trilogy (2015). Platform
+- Adam Port - Do You Still Think Of Me? (2018). Platform
+- Rampa - Purge (2018). Platform
+- Yeah But No - Run Run Run (Adam Port Remix) (2019). Platform
+- Rampa - 528Hz (2017). Platform
+- &Me - Solaris (2018). Platform
+- Adam Port & Stereo MCs - Place (2014). Platform
+- Nomi & Rampa - Inside (2010). Platform
+- Rampa & WhoMadeWho - Tell Me Are We (2019). Platform
+- Âme - No War (Rampa Remix) (2017). Platform
+
+- Westbam ft. Richard Butler - You Need the Drugs (&ME Remix) (2020). Platform
+- &Me - In Your Eyes (2018). Platform
+- Joris Voorn ft. Matthew Dear and Jinadu- Homeland (&ME Remix + Jinadu Vocals) (2015). Platform
+- Rüfüs Du Sol - Underwater (Adam Port Remix) (2018). Platform
+- Cubicolor - No Dancers (Adam Port Remix) (2019). Platform
+- Manqo - Won't Change (Rampa Remix) (2020). Platform
+- Xinobi - Far Away Place (Rampa Remix) (2018). Platform
+- NTEIBINT & Stella - A State Nearby (Adam Port Calypso Remix) (2018). Platform
+- Adam Port - White Noise Romantica. (2018). Platform
+- Rampa - Newborn Soul (2015). Platform
+- &Me - The Rapture Pt.II (2018). Platform
+- &Me - Garden (2019). Platform
+- Adam Port - Ganesha Song (2017). Platform
+- &Me - Starting Again (2019). Platform
+- &Me - The Rapture (2017). Platform
+- Keinemusik - Muyè (2017). Platform
+- Rampa - Sunday (2018). Platform
+- &Me - Fairchild (2019). Platform
+- Rampa - For This (2019). Platform
+- Here Is Why - Tonight (Adam Port 12" Autobahn Edit) (2016). Platform
+- Jai Paul - Crush - Unfinished (Adam Port Edit) (2013). Platform
+- Aux 88 - My A.U.X. Mind (2019). Platform
+- The Dirtbombs - Sharivari (2011). Platform
+- Blake Baxter - When We Used To Play (1987). Platform
+- Waajeed - Power In Numbers (2018). Platform
+- EGB - Shhhh (2020). Platform
+- EGB - Clout (2020). Platform
+- Paper Clip People - Oscillator (1996). Platform
+- Gil Scott-Heron - We Almost Lost Detroit (1977). Platform
+- Dopplereffekt - Pornoviewer (1999). Platform
+- Moodymann - Sinner (2019). Platform
+- Moodymann - I'll Provide (2019). Platform
+- Moodymann - I Think Of Saturday (2019). Platform
+- Moodymann - Got Me Coming Back Rite Now (2016). Platform
+- Moodymann Ft. Roberta Sweed - Runaway (2004). Platform
+- Pitch Black City & Moodymann - Runaway (2004). Platform
+- Moodymann - No (2014). Platform
+- Moodymann - Got 2 Make It 2 Heaven (2013). Platform
+- Amp Fiddler - Over U (2020). Platform
+- Andrés - New For U (Live) (2012). Platform
+- Theo Parrish - Soul Control (2007). Platform
+- Marcellus Pittman - Red Dogon Star (2018). Platform
+- Sheefy McFly - Thinkin' Bout You (2019). Platform
+- Moodymann - I Can't Kick This Feeling When It Hits (1997). Platform
+- Moodymann - Freeki Muthafucker (2011). Platform
+- Moodymann - I Got Werk (2014). Platform
+- Moodymann - Rectify (2004). Platform
+- Moodymann - Let Me Show You Love (2020). Platform
+- Moodymann - 1988 (2020). Platform
+- Pirahnahead & Diviniti - ♥Love (2005). Platform
+- Norma Jean Bell - I'm The Baddest Bitch (1996). Platform
+- Apollo Brown Ft. Planet Asia - Get Back (2017). Platform
+- Eddie Fowlkes - Time To Express (1992). Platform
+- Kyle Hall & Kero - Zug Island (2012). Platform
+- Norm Talley - Cosmic Waves (Delano Smith Remix) (2012). Platform
+- Cybonix - Cybonix Groove (2008). Platform
+- GMI/UHM - Formula Of Passion (2020). Platform
+- Moodymann - Jan (2001). Platform
+- Moodymann - It's 2 Late 4 U And Me (2013). Platform
+- Amp Fiddler Ft. Moodymann- I Get Moody Sometimes (2017). Platform
+
+# Reproductor
+
+- Seth Troxler - Lumartes (2021)
+- Abdulhadi - Reverie (2021) Platform
+- The Church - Rampa (2020) Platform
+- Dixon - Deichkind – Autonom (Dixon Edit) (2021) Platform
+- Kerri Chandler - You (2021) Platform
+- tINI Ft. Amiture - What If, Then What? (2021) Platform
+- DJ Tennis - Atlanta (2021) Platform
+- Moodymann Ft. CD - Keep On Coming - (2021) Platform
+- Jamie Jones - Laser Lass (2021) Platform
+- Mano Le tough - As If To Say (2021) Platform
+- Raindrops - Butch feat. Kemelion (2021) Platform
+- Forever Free - Carl Craig (2021) Platform
+- Wishing Well - Margaret Dygas (2021) Platform
+- Calib - Red Axes (2021) Platform
+- Mantra For Lizzie - Luciano (2021) Platform
+- Revision Of The Past - Lost Souls of Saturn & TOKiMONSTA (2021) Platform
+- Break It Up - Adam Beyer (2021) Platform
+- Nova Two - Tale Of Us (2021) Platform
+- Up In Flames - Bedouin (2021) Platform
+- The Future - Damian Lazarus feat. Robert Owens (2021) Platform
+- CLR Launch Party (Seth Troxler) Platform
+- Revision Of The Past - Lost Souls of Saturn & TOKiMONSTA (2021) Platform
+- Break It Up (Edited) - Adam Beyer (2021) Platform
+- Atlanta (Edited) - DJ Tennis (2021) Platform
+- Up In Flames - Bedouin (2021) Platform
+- What If, Then What? (Edited) - tINI feat. Amiture (2021) Platform
+- Forever Free (Edited) - Carl Craig (2021) Platform
+- Raindrops (Edited) - Kemelion (2021) Platform
+- The Church (Edited) - Rampa (Keinemusik) (2020) Platform
+- Lumartes (Edited) - Seth Troxler (2021) Platform
+- Keep on Coming (Edited) - Moodymann feat. CD (2021) Platform
+- As If To Say (Edited) - Mano Le tough (2021) Platform
+- Deichkind – Autonom (Dixon Edit) - Dixon (2021) Platform
+- Calib (Edited) - Red Axes (2021) Platform
+- Reverie/Laser Lass - Abdulhadi/Jamie Jones (2021) Platform
+- Thundercat - Them Changes (2017). Platform
+- Christión - Pimp This Love (1997). Platform
+- Atlanta Rhythm Section - So Into You (1976). Platform
+- Ro James - GA$ (2016). Platform
+- Claudja Barry - Love For Sake Of Love (1976). Platform
+- Barbara NcNair - My World Is Empty Without You (1965). Platform
+- MFSB - Plenty Good Lovin' (1976). Platform
+- The Emotions - I Don't Wanna Lose Your Love (1976). Platform
+- Bell & James - Livin' It Up (Friday Night) (1978). Platform
+- Jesse Johnson Ft. Moodymann - Where The Devil Plays (2021). Platform
+- Stavroz - Gold Town (2017). Platform
+- Larry Heard - Lamentation (2005). Platform
+- Mobb Deep - Cradle To The Grave (1995). Platform +++++++++++
+- Nipsey Hussle Ft. Cobby Supreme And Dom Kennedy - Checc Me Out (2013). Platform
+- Dâm-Funk Ft. MC Eiht - Hood Pass Intact (2010). Platform
+- Shade Sheist Ft. Nate Dogg & Kurupt - Where I Wanna Be (2000). Platform
+- LTJ X-Perience Ft. Anduze - Bad Side (2019). Platform
+- Aurra - Make Up Your Mind (1981). Platform
+- Puff Daddy & The Family Ft. Black Rob - I Love You Baby (1997). Platform
+- Teena Marie - Deja Vu (1979). Platform
+- Rick James - Hollywood (1978). Platform
+- Joey Purp - Elastic (2018). Platform
+- Channel Tres - Skate Depot (Moodymann Remix) (2020). Platform
+- Marvin Belton - The Letter (2009). Platform
+- Moodymann - Basement Party (2012). Platform
+- Moodymann - Pray 4 Love (2012). Platform
+- Moodymann - Technologystolemyvinyle (2007). Platform
+- AMP Fiddler Ft. Moodymann - I Get Moody Sometime (2017). Platform
+- Sandy Barber - I Think I'll Do Some Steppin On My Own (Opolopo Rework) (2014). Platform
+- Moodymann - 9 Nights 2 Nowhere (2012). Platform
+- NEZ Ft. Gangsta Boo & Moodymann - Freaks (2022). Platform
+- Obie Trice Ft. Nate Dogg - The Setup (You Don't Know) (2003). Platform
+- José James - Love Conversation (2010). Platform
+- Moodymann - Misled (1997). Platform
+- Teena Marie - I Need Your Lovin' (1980). Platform
+- Dr. Dre - Black Privilege (2021). Platform +++++++++
+- Dr. Dre feat. Nipsey Hustle & Ty Dolla Sign - "Diamond Mind" by (2021). Platform
+- Dr. Dre feat. Anderson .Paak, Snoop Dogg & Busta Rhymes - "ETA" (2021). Platform
+- Dr. Dre feat. THURZ & Cocoa Sara - "Falling Up" (2021). Platform
+- Dr. Dre feat. Rick Ross & Anderson .Paak - "The Scenic Route" (2021). Platform
+- Dr. Dre feat. Eminem - "Gospel" (2021) Platform
+- NEZ - You Wanna? (2021). Platform
+- NEZ Ft. Schoolboy Q - Let’s Get It (2021). Platform
+
+# MOTOMAMI Los Santos
+
+- Bad Gyal - A La Mía (2021). Platform
+- La Goony Chonga - Duro 2005 (2019). Platform
+- Likkle Vybz & Likkle Addi - Skinny Jeans (2019). Platform
+- Rauw Alejandro - Nubes (2021). Platform
+- Arca - Machote (2020). Platform
+- DJ Spinn - Bounce N Break Yo Back (2017). Platform
+- Monchy & Alexandra - Dos Locos (2006). Platform
+- El Camarón De La Isla - Volando Voy (1979). Platform
+- Armando - 100% Of Disin' You (2009). Platform
+- ROSALÍA - A Palé (2019). Platform
+- ROSALÍA & J Balvin Ft. El Guincho - Con Altura (2019). Platform
+- ROSALÍA With The Weeknd - La Fama (2021). Platform
+- Mr. Fingers - Mystery Of Love (1985). Platform
+- Daddy Yankee - Salgo Pa’ la Calle (2008). Platform
+- Tokischa x Haraca Kiko x El Cherry Scom - Tukuntaso (2021). Platform
+- Q - Take Me Where Your Heart Is (2020). Platform
+- Ñejo & Dalmata - Vacilar Contigo (2012). Platform
+- Young Cister Ft. Kaydy Cain - XULITA (2020). Platform
+- Popcaan - Body So Good (2018). Platform
+- Willie Colón & Héctor Lavoe - Calle Luna Calle Sol (1973). Platform
+- Alberto Stylee - Tumbando Fronte (2006). Platform
+- Chucky73 - Dominicana (2021). Platform
+- Aventura - Mi Corazoncito (2006). Platform
+- DJ Slugo - 418 (Bounce Mix) (2008). Platform
+- Kaydy Cain Ft. Los Del Control - Algo Como Tú (2019). Platform
+- Caroline Polachek - Bunny Is A Rider (2021). Platform
+- Arca Ft. ROSALÍA - KLK (2020). Platform
+- Tokischa & ROSALÍA - Linda (2021). Platform
+- ROSALÍA - Di Mi Nombre (Cap.8: Éxtasis) (2018). Platform
+- Justice - Stress (2007). Platform
+- Las Guanábanas - Vamos Pa la Disco (2005). Platform
+- Playboi Carti - Rockstar Made (2020). Platform
+- Soulja Boy - Snap And Roll (2007). Platform
