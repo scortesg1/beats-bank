@@ -12,3 +12,18 @@ You can access to Beats Bank with the following link: https://beatsbank.netlify.
 
 - ReactJS: A JavaScript library for building user interfaces.
 - TailwindCSS: A utility-first CSS framework for rapid UI development.
+
+## Usage
+Search for songs by entering their name in the search bar.
+Filter songs by genre using the provided options.
+Explore the entire collection to discover a wide range of songs.
+
+## Contributing
+Contributions are welcome! If you have suggestions, improvements, or bug fixes, please open an issue or send me a DM.
+
+## License
+This project is licensed under the MIT License.
+
+## Acknowledgements
+Grand Theft Auto V: The game that inspired this project and its incredible soundtrack.
+Happy exploring the beats of GTA V with Beats Bank!
